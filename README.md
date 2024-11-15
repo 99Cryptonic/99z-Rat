@@ -9,4 +9,5 @@
 
 ## Important: USE FOR EDUCATIONAL PURPOSE ! I AM NOT RESPONSIBLE FOR YOUR ACTION'S!
 
-![ez](https://github.com/user-attachments/assets/411ecf35-4365-4891-a0c2-cab89f5cd38c)
+
+![Screenshot_16 — копия](https://github.com/user-attachments/assets/c82f48ba-3763-4ad4-9e5d-1ecda2ca68e5)
